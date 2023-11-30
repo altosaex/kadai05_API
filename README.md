@@ -10,9 +10,9 @@ https://chat.openai.com/g/g-braEVMD6C-data-insight-explorer
 
 ※全体非公開のGPTs
 
-https://73.gigafile.nu/1205-o5b13cfcb53fffb6de74d0a4bc4eb75a3
+https://x.com/sae_coach/status/1730232431456706742?s=20
 
-※DEMO動画 12/5まで有効
+※DEMO動画 １０倍速
 
 
 ## 紹介と使い方
